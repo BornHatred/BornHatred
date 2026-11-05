@@ -1,4 +1,4 @@
-## Hi there 👋
+## working on it once i figured this out ok
 
 <!--
 **BornHatred/BornHatred** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
