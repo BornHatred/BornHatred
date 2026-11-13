@@ -1,5 +1,7 @@
 ## working on it once i figured this out ok
 
+<a href="https://hits.sh/github.com/BornHatred/"><img alt="Hits" src="https://hits.sh/github.com/BornHatred.svg?label=ROBLOX%20BIGGEST%20HATER%20BADGE&color=22C11D&labelColor=22c11d&logo=1x1x1x1"/></a>
+
 <!--
 **BornHatred/BornHatred** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
