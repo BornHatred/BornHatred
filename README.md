@@ -20,7 +20,10 @@
 
 </details>
 
+<p><span style="color: #339966;">♡ Call Vaeda or Vae for short ~ or you can give me ANOTHER name!! I'd take anything. Really ♡</span></p>
 
+$\color{#42d472}{\text{test}}$. 
+; ooohh - $\color{#42d472}{\text{sdd}}$
 
 <div align="center">
 
