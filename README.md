@@ -9,7 +9,8 @@
 
 <details>
   <summary><img width="490" height="11" alt="705461678-01b92baf-9b77-4ebd-81e0-08281ff5081a" src="https://github.com/user-attachments/assets/49f057b5-483b-4900-a170-ec8d292cf2a7" /></summary>
-  <img width="150" height="20" alt="củe" src="https://github.com/user-attachments/assets/1ba28a6d-4f46-454d-9fdd-451726fc52b3" /> <img width="57" height="18" alt="ud9qyc" src="https://github.com/user-attachments/assets/06cbaa93-6722-42b5-8a0c-ff0d90b9f30d" /> <img width="24" height="18" alt="heart" src="https://github.com/user-attachments/assets/45b80e8d-6cd0-4bd0-8b2d-a6b2636985fd" /> <img width="80" height="18" alt="villanious" src="https://github.com/user-attachments/assets/36acc459-b223-407e-a0d3-89e80308a02a" /> <img width="58" height="18" alt="poison" src="https://github.com/user-attachments/assets/e3fcba79-2ab3-458f-96d6-e5e912f9dd19" /> <img width="46" height="18" alt="toxic" src="https://github.com/user-attachments/assets/5333ff53-118e-4d19-8b10-d822b2f258e2" /> <img width="63" height="18" alt="s61dt9" src="https://github.com/user-attachments/assets/0895f005-9ec4-4978-8acc-0bb69f9529a3" /> <img width="84" height="18" alt="sxpn4n" src="https://github.com/user-attachments/assets/af2a162f-6743-4619-a785-76c6a7c2d54b" />
+  <img width="150" height="20" alt="củe" src="https://github.com/user-attachments/assets/1ba28a6d-4f46-454d-9fdd-451726fc52b3" /> <img width="57" height="18" alt="ud9qyc" src="https://github.com/user-attachments/assets/06cbaa93-6722-42b5-8a0c-ff0d90b9f30d" /> <img width="24" height="18" alt="heart" src="https://github.com/user-attachments/assets/45b80e8d-6cd0-4bd0-8b2d-a6b2636985fd" /> <img width="80" height="18" alt="villanious" src="https://github.com/user-attachments/assets/36acc459-b223-407e-a0d3-89e80308a02a" /> <img width="58" height="18" alt="poison" src="https://github.com/user-attachments/assets/e3fcba79-2ab3-458f-96d6-e5e912f9dd19" /> <img width="46" height="18" alt="toxic" src="https://github.com/user-attachments/assets/5333ff53-118e-4d19-8b10-d822b2f258e2" /> <img width="63" height="18" alt="s61dt9" src="https://github.com/user-attachments/assets/0895f005-9ec4-4978-8acc-0bb69f9529a3" /> <img width="84" height="18" alt="sxpn4n" src="https://github.com/user-attachments/assets/af2a162f-6743-4619-a785-76c6a7c2d54b" /> <img width="150" height="20" alt="ac14a0a3" src="https://github.com/user-attachments/assets/d6ad74cf-6682-426b-8610-fffb1d5bee5d" />
+
 
 
 
@@ -21,10 +22,13 @@
 </details>
 
 ♡ $\color{#A0CC11}{\text{Call me Vaeda or Vae for short ~ or you can give me ANOTHER name!! I'd take anything. Really.}}$ ♡
-◌◞ $\color{#44CC11}{\text{Bisexual ┊ [Any pronouns](https://en.pronouns.page/@Vaeda)}}$ 
-$\color{#11CC3D}{\text{ɪɴᴛᴘ - 5ᴡ4 - sᴘ/sx - 469 - ɪʟɪ- ᴛʀᴜᴇ ɴᴇᴜᴛʀᴀʟ - ʀʟᴜᴇɪ - ʟᴠᴇꜰ - ᴍᴇʟᴀɴᴄʜᴏʟɪᴄ (ᴅᴏᴍɪɴᴀɴᴛ) - ɪᴛ(ɴ)}}$
 
-$\colorbox{#A2D704}\text{✧˚ ʚɞ˚ ༘✿ ♡ ⋆｡˚}}$
+◌◞ $\color{#44CC11}{\text{Bisexual ┊ Any pronouns}}$ 
+
+<img width="20" height="20" alt="f477b758" src="https://github.com/user-attachments/assets/2ff7ccb5-9a9b-4ce4-9662-ea2f31d5416e" />
+$\color{#11CC3D}{\text{ɪɴᴛᴘ - 5ᴡ4 - sᴘ/sx - 469 - ɪʟɪ- ᴛʀᴜᴇ ɴᴇᴜᴛʀᴀʟ - ʀʟᴜᴇɪ - ʟᴠᴇꜰ - ᴍᴇʟᴀɴᴄʜᴏʟɪᴄ (ᴅᴏᴍɪɴᴀɴᴛ) - ɪᴛ(ɴ)}}$ <img width="20" height="20" alt="f477b758" src="https://github.com/user-attachments/assets/2ff7ccb5-9a9b-4ce4-9662-ea2f31d5416e" />
+
+$$\{{✧˚ ʚɞ˚ ༘✿ ♡ ⋆｡˚}}$
 
 
 
