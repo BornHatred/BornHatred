@@ -20,10 +20,14 @@
 
 </details>
 
-<p><span style="color: #339966;">♡ Call Vaeda or Vae for short ~ or you can give me ANOTHER name!! I'd take anything. Really ♡</span></p>
+♡ $\color{#A0CC11}{\text{Call me Vaeda or Vae for short ~ or you can give me ANOTHER name!! I'd take anything. Really.}}$ ♡
+◌◞ $\color{#44CC11}{\text{Bisexual ┊ [Any pronouns](https://en.pronouns.page/@Vaeda)}}$ 
+$\color{#11CC3D}{\text{ɪɴᴛᴘ - 5ᴡ4 - sᴘ/sx - 469 - ɪʟɪ- ᴛʀᴜᴇ ɴᴇᴜᴛʀᴀʟ - ʀʟᴜᴇɪ - ʟᴠᴇꜰ - ᴍᴇʟᴀɴᴄʜᴏʟɪᴄ (ᴅᴏᴍɪɴᴀɴᴛ) - ɪᴛ(ɴ)}}$
 
-$\color{#42d472}{\text{test}}$. 
-; ooohh - $\color{#42d472}{\text{sdd}}$
+$\colorbox{#A2D704}\text{✧˚ ʚɞ˚ ༘✿ ♡ ⋆｡˚}}$
+
+
+
 
 <div align="center">
 
