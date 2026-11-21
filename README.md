@@ -5,7 +5,6 @@
 <a href="https://hits.sh/github.com/BornHatred/"><img alt="Hits" src="https://hits.sh/github.com/BornHatred.svg?label=R0BL0X%20B166EST%20H4T3R%20B4DGE&color=22C11D&labelColor=22c11d&logo=1x1x1x1"/></a>
 
 
-<img width="3289" height="2160" alt="New board (3) (1)" src="https://github.com/user-attachments/assets/a2b4d179-1a1a-41a8-b2a0-c4a545e7ce0d" />
 
 <details>
   <summary><img width="490" height="11" alt="705461678-01b92baf-9b77-4ebd-81e0-08281ff5081a" src="https://github.com/user-attachments/assets/49f057b5-483b-4900-a170-ec8d292cf2a7" /></summary>
