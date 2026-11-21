@@ -22,10 +22,13 @@
 
 ♡˚₊‧꒰ა  $\color{#A0CC11}{\text{Call me Vaeda or Vae for short ~ or you can give me ANOTHER name!! I'd take anything. Really.}}$ ໒꒱‧₊˚♡
 
-◌◞ $\color{#44CC11}{\text{Bisexual ┊ Any pronouns}}$ 
+◌◞ $\color{#44CC11}{\text{Bisexual}}$  ┊ $\color{#44CC11}{\text{Any pronouns}}$ 
 
 <img width="20" height="20" alt="f477b758" src="https://github.com/user-attachments/assets/2ff7ccb5-9a9b-4ce4-9662-ea2f31d5416e" />
-$\color{#11CC3D}{\text{ɪɴᴛᴘ - 5ᴡ4 - sᴘ/sx - 469 - ɪʟɪ- ᴛʀᴜᴇ ɴᴇᴜᴛʀᴀʟ - ʀʟᴜᴇɪ - ʟᴠᴇꜰ - \[ᴍᴇʟᴀɴᴄʜᴏʟɪᴄ\]\(ᴅᴏᴍɪɴᴀɴᴛ\)  - \[ɪᴛ\]\(ɴ\)}}$ <img width="20" height="20" alt="f477b758" src="https://github.com/user-attachments/assets/2ff7ccb5-9a9b-4ce4-9662-ea2f31d5416e" />
+$\color{#11CC3D}{\text{ɪɴᴛᴘ - 5ᴡ4 - sᴘ/sx - 469 - ɪʟɪ- ᴛʀᴜᴇ ɴᴇᴜᴛʀᴀʟ - ʀʟᴜᴇɪ - ʟᴠᴇꜰ - \[ᴍᴇʟᴀɴᴄʜᴏʟɪᴄ\]\(ᴅᴏᴍɪɴᴀɴᴛ\)  - \[ɪᴛ\]\(ɴ\)}}$ <img width="20" height="20" alt="f477b758" src="https://github.com/user-attachments/assets/2ff7ccb5-9a9b-4ce4-9662-ea2f31d5416e" />  
+
+$\color{#11CC3D}{\text{ɪɴᴛᴘ - 5ᴡ4 - sᴘ/sx - 469 - ɪʟɪ - ᴛʀᴜᴇ ɴᴇᴜᴛʀᴀʟ - ʀʟᴜᴇɪ - ʟᴠᴇꜰ - [ᴍᴇʟᴀɴᴄʜᴏʟɪᴄ] (ᴅᴏᴍɪɴᴀɴᴛ) - [ɪᴛ] (ɴ)}}$
+
 
 <mark>$\color{#A2D704}{\text{✧˚ ʚɞ˚ ༘✿ ♡ ⋆｡˚}}$<mark>
 
