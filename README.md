@@ -20,15 +20,20 @@
 <details>
 <summary>$\color{#C62A15}{\text{ＩＭＰＯＲＴＡＮＴ ＢＥＦＯＲＥ ＩＮＴＥＲＡＣＴＩＮＧ}}$</summary>
 
-$\color{#C11A2E}{\text{VIE/ENG only ^_^}}$
+$\color{#C11A2E}{\text{VIE/ENG only \^\_\^}}$
 
 $\color{#C11A2E}{\text{I have 0 sense of humor and makes offensive jokes (i.e sex jokes, etc)}}$
 
-$\color{#C11A2E}{\text{I mirror someone's else way of talking at one point}}$
+$\color{#C11A2E}{\text{I do hate a lot of things, bear with me or not}}$
 
 $\color{#C11A2E}{\text{I usually make typos, half on purpose half by accident}}$
 
-$\color{#C11A2E}{\text{No boundaries/DNI at the moment}}$
+$\color{#C11A2E}{\text{Very few boundaries/DNI at the moment}}$
+
+![007n7 gooners in general. do NOT get close to me. i dont care what versions. (could be excluded but on thin ice, very thin ice.](<img width="1600" height="50" alt="tumblr_af2edba73189c0a5f07eb3dba673bf29_26b511a7_2048" src="https://github.com/user-attachments/assets/60973f7f-0a7e-4892-b5aa-b6c595ec1b68" />
+)
+
+
 </details>
 
 
