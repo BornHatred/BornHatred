@@ -20,7 +20,8 @@
 <details>
 <summary>$\color{#C62A15}{\text{ＩＭＰＯＲＴＡＮＴ ＢＥＦＯＲＥ ＩＮＴＥＲＡＣＴＩＮＧ}}$</summary>
 
-$\color{#C11A2E}{\text{VIE/ENG only \^\_\^}}$
+
+$\color{#C11A2E}{\text{VIE|ENG only}}$
 
 $\color{#C11A2E}{\text{I have 0 sense of humor and makes offensive jokes (i.e sex jokes, etc)}}$
 
