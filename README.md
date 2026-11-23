@@ -19,15 +19,16 @@
 
 <details>
 <summary>$\color{#C62A15}{\text{ＩＭＰＯＲＴＡＮＴ ＢＥＦＯＲＥ ＩＮＴＥＲＡＣＴＩＮＧ}}$</summary>
-VIE/ENG only ^_^
 
-I have 0 sense of humor and makes offensive jokes (i.e sex jokes, etc)
+$\color{#C11A2E}{\text{VIE/ENG only ^_^}}$
 
-I mirror someone's else way of talking at one point
+$\color{#C11A2E}{\text{I have 0 sense of humor and makes offensive jokes (i.e sex jokes, etc)}}$
 
-I usually make typos, half on purpose half by accident
+$\color{#C11A2E}{\text{I mirror someone's else way of talking at one point}}$
 
-No boundaries/DNI at the moment
+$\color{#C11A2E}{\text{I usually make typos, half on purpose half by accident}}$
+
+$\color{#C11A2E}{\text{No boundaries/DNI at the moment}}$
 </details>
 
 
