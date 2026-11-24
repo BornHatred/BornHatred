@@ -38,7 +38,7 @@ $\color{#C11A2E}{\text{And I'm not doing allat I can't do ts aesthetic thing ok.
   <img src="https://github.com/user-attachments/assets/494a0505-7c18-40a4-9d85-5e6dc366f07a" alt="Banner Picture" width="220" />
   <br />
   <a href="https://hits.sh/github.com/BornHatred/">
-    <img alt="Hits" src="https://hits.sh/github.com/BornHatred.svg?label=R0BL0X%20B166EST%20H4T3R%20B4DGE&color=22C11D&labelColor=22c11d&logo=1x1x1x1" />
+    <img alt="Hits" src="https://hits.sh/github.com/BornHatred.svg?style=flat-square&label=R0BL0X%20B1GGE5T%20H4T3R%20B4DG3&extraCount=500&color=52c725&labelColor=52C725&logo=roblox" />
   </a>
 </p>
 
